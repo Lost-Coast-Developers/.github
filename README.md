@@ -1,1 +1,1 @@
-# .github
+# About Lost Coast Developers
