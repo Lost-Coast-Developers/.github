@@ -1,1 +1,0 @@
-# About Lost Coast Developers
